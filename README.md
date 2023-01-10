@@ -6,4 +6,4 @@
 - 📫 How to reach me: @taldodiraca/twitter @jaime.alex_/instagram
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: Sou brasileiro, jogo basquete e tenho 1.88
--->
+
