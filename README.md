@@ -33,6 +33,7 @@ Full-Stack Development
 Building efficient, scalable, and secure solutions
 
 🌎 Languages
+
 Portuguese (BR)
 
 English (EN)
